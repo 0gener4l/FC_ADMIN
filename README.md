@@ -1,2 +1,3 @@
 # FC_ADMIN
-discord.gg/EkwWvFS
+Eyes Customer's = discord.gg/EkwWvFS
+STG Developments = https://discord.gg/PNHt2MbNZ9
